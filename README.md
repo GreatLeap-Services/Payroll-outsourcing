@@ -1,2 +1,4 @@
 # Payroll-outsourcing
 Best payroll outsourcing service provider  in Kerala.
+GREAT LEAP offers end-to-end PAYROLL MANAGEMENT solutions that save your time and money, besides mitigating the risk of compliance. Matchless expertise in Labour Laws makes GREAT LEAP your perfect payroll partner. We assure error-free and up-to-date payroll processing and compliance with the laws and regulations. The major services we offer in payroll management include: Managing Employee State Insurance (ESI), Employee Provident Fund (EPF), Labour Welfare Fund (LWF) etc.
+GREAT LEAP, the best payroll professionals Kochi offers expert HR services of matchless quality that boosts your journey towards excellence.It relieves your employees of extra burden so that they can focus on core business. Moreover, you can stay worry-free knowing that your organization follows the best HR practices and complies with all the relevant employment laws.
